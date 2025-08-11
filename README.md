@@ -10,4 +10,8 @@ Seinjeet Maken IT
 ### after the spritual session at the gurudwara sahib the college organized tea and snacks for us as everyone should be energetic for the Inaugural ceremony.
 # 10:00 onwards 
 ## Inaugural ceremony 
+### An inaugural presentation, followed by an inspiring alumni video, highlighted the institute’s mission and the value of engaging in activities beyond academics.
+## Alumni speakers
+### Sangam Arora and Arshpreet Singh (Batch 2025) shared practical advice on maintaining consistency, developing self-learning habits, taking internships, and actively participating in clubs and project work.
+## Speeches were delivered by:
 ### 
