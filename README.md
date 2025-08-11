@@ -38,3 +38,13 @@ Seinjeet Maken IT
 ### Helped identify students’ current learning levels and highlighted areas where additional academic support might be beneficial.
 ## Buddy4Study Scholarship Briefing
 Provided information on available scholarships and practical tips on how to apply successfully.
+# Day 3
+## 2nd August 2025
+## Live Experiment Session by Dr. Jaswinder Singh
+### Featured simple, hands-on experiments that made Physics and Mathematics concepts easier to grasp and learning more engaging.
+## UHV – Part 2 by Dr. Priya Darshni
+### Focused on building trust, mutual respect, and empathy in relationships, encouraging reflection on family bonds and peer connections.
+## Chief Guest Address by S. Gurcharan Singh Grewal (Secretary, SGPC)
+### Motivated students to lead with humility, uphold values, and work with honesty for the welfare of society.
+## Reflection & Group Discussions
+Students reviewed their Day 2 test outcomes and exchanged thoughts in guided discussion circles.
