@@ -21,4 +21,8 @@ Seinjeet Maken IT
 ### Dr. Akshay Girdhar (Dean Academics)
 
 ### Dr. Parminder Singh (Dean Student Welfare)
+# Guests of Honour:
+## Er. Ravinder Garg, Chief Engineer, MC Ludhiana
 
+## Er. Rakesh Kumar, GNDEC alumnus (Batch 1991) and ADC Ludhiana
+## The session concluded with a Vote of Thanks by Dr. K.S. Mann (HoD, IT).
