@@ -26,3 +26,15 @@ Seinjeet Maken IT
 
 ## Er. Rakesh Kumar, GNDEC alumnus (Batch 1991) and ADC Ludhiana
 ## The session concluded with a Vote of Thanks by Dr. K.S. Mann (HoD, IT).
+# Day 2
+## 1st August 2025
+## Universal Human Values – Part 1 by Dr. Priya Darshni
+### Introduced key human aspirations like happiness and prosperity, along with ideas of natural acceptance and self-reflection as foundations of meaningful education.
+## STEP (Student Talent Enhancement Program) by Dr. Arvind Dhingra
+### Emphasised the need for strong communication, effective presentations, time management, goal setting, and teamwork to prepare students for both professional success and personal growth.
+## Health & Wellness Session by Dr. Arashdeep Singh
+### Discussed balanced nutrition, proper hydration, regular physical activity, and mental health care for a healthy, productive lifestyle.
+## English & Mathematics Assessment Tests
+### Helped identify students’ current learning levels and highlighted areas where additional academic support might be beneficial.
+## Buddy4Study Scholarship Briefing
+Provided information on available scholarships and practical tips on how to apply successfully.
