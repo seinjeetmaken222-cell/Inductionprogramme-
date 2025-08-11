@@ -48,3 +48,13 @@ Provided information on available scholarships and practical tips on how to appl
 ### Motivated students to lead with humility, uphold values, and work with honesty for the welfare of society.
 ## Reflection & Group Discussions
 Students reviewed their Day 2 test outcomes and exchanged thoughts in guided discussion circles.
+# Day 4
+## 4th August 2025
+## UHV – Part 3 by Dr. Priya Darshni
+### Explored living in harmony with nature and society, promoting sustainability, and fulfilling ethical duties as future engineers.
+## Motivational Talk by Gautam Sir (Motorsports Journey)
+### Shared his inspiring journey in motorsports, urging students to pursue their passions without fear or hesitation.
+## Causmic Club Introduction
+### Presented the club’s creative and technical ventures, motivating newcomers to participate and showcase their abilities.
+## Peer Interaction & Engagement
+### Ice-breaker games, Q&A sessions, and open discussions with seniors and faculty helped freshers connect and feel part of the community.
