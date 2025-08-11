@@ -14,4 +14,11 @@ Seinjeet Maken IT
 ## Alumni speakers
 ### Sangam Arora and Arshpreet Singh (Batch 2025) shared practical advice on maintaining consistency, developing self-learning habits, taking internships, and actively participating in clubs and project work.
 ## Speeches were delivered by:
-### 
+### Dr. Sehijpal Singh (Principal)
+
+### Dr. Harpreet Kaur Grewal (HoD, Applied Sciences)
+
+### Dr. Akshay Girdhar (Dean Academics)
+
+### Dr. Parminder Singh (Dean Student Welfare)
+
